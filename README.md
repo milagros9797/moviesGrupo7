@@ -4,3 +4,4 @@ Milagros Herrera, 25 años, Buenos Aires
 Marcelo Santander
 Rene Chumacero
 Carolina Diaz
+hoal soy rene chumacero tengo 37 años soy de la ciudad de Salta
