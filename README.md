@@ -3,4 +3,4 @@ Integrantes del equipo:
 Milagros Herrera
 Marcelo Santander
 Rene Chumacero
-Carolina Diaz
+Carolina Diaz, 28 años, Buenos Aires
