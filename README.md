@@ -1,6 +1,6 @@
 # Proyecto Movies
 Integrantes del equipo:
-Milagros Herrera
+Milagros Herrera, 25 años, Buenos Aires
 Marcelo Santander
 Rene Chumacero
 Carolina Diaz, 28 años, Buenos Aires
